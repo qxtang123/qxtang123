@@ -36,6 +36,9 @@
 ![image](https://github.com/user-attachments/assets/c1268467-fd29-44c0-8bcc-09b92ececb5b)
 ![WechatIMG244](https://github.com/user-attachments/assets/73615505-8c6d-4311-b08a-064511b99130)
 
+### 我写给同事的道歉信（写完又开始喷人哟）
+![Snipaste_2024-10-09_16-28-50](https://github.com/user-attachments/assets/71237fff-8f6d-4ae9-a7d3-f6f274ddc8d9)
+
 
 
 <!---
