@@ -34,6 +34,7 @@
 ### 战绩可查
 ![image](https://github.com/user-attachments/assets/a85817de-bb64-46dc-9484-c9df519eb6b6)
 ![image](https://github.com/user-attachments/assets/c1268467-fd29-44c0-8bcc-09b92ececb5b)
+![image](https://github.com/user-attachments/assets/f7e810dd-4f4b-49cf-b81c-eed8ad22c61f)
 ![WechatIMG244](https://github.com/user-attachments/assets/73615505-8c6d-4311-b08a-064511b99130)
 
 ### 我写给同事的道歉信（写完又开始喷人哟）
